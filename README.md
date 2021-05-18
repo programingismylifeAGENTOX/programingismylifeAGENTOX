@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @programingismylifeAGENTOX
+- 👀 I’m interested in programing
+- 🌱 I’m currently learning programming languages
+- 📫 How to reach me aggentox@gmail.com
